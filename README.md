@@ -1,6 +1,7 @@
 *taps my mic* Hello? Hellooo? Am I doing this right? I better be, or else I'll look like an idiot.
 
-<img width="160" alt="image" src="https://github.com/user-attachments/assets/247a2b9b-77bc-49b8-9d7c-9ab9c8b4541a">
+<img width="160" alt="image" src="https://github.com/user-attachments/assets/8fca43bd-32e8-48ea-89b6-fadaf139e8da">
+
 
 I hate making intros, but I also like making good impressions! so yay....
 ![image](https://github.com/user-attachments/assets/5a368817-fbf4-4e78-a066-0fb4f1344cea)
@@ -23,8 +24,9 @@ Anyway! Some interests I kinda have are FAITH: The Unholy Trinity, 9/11, Oceanga
 
 I'm running out of things to say about me, but i also have [this strawpage](https://nostalgiahog.straw.page) that does a better job at showifn who I am! hopefully you'll send me a little gift!
 
-![image](https://github.com/user-attachments/assets/d7e1bcbc-9c76-438f-ab51-f7a3d449f531)
-![image](https://github.com/user-attachments/assets/d8b9f3cd-251c-4f26-bc6a-3d3eb40de3c2) ![image](https://github.com/user-attachments/assets/972f72e6-d1b2-4850-a051-7653482bffc4)
+![image](https://github.com/user-attachments/assets/427fd934-16f5-4c2e-91c6-b146bb0a0c98)![image](https://github.com/user-attachments/assets/f2794642-be41-4cd6-9582-9615fa1e8911)![image](https://github.com/user-attachments/assets/8af31c63-20ec-4a77-b530-4d2cca84230c)
 
-![image](https://github.com/user-attachments/assets/444a78ef-a2f9-4642-b1af-4aba5bf9a699)
+
+![image](https://github.com/user-attachments/assets/ad7dba7c-a325-48ac-8775-7a45dddf3300)
+
 
