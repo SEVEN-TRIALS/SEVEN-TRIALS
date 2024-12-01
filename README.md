@@ -2,15 +2,14 @@
 
 <img width="160" alt="image" src="https://github.com/user-attachments/assets/8fca43bd-32e8-48ea-89b6-fadaf139e8da">
 
-
 I hate making intros, but I also like making good impressions! so yay....
-![image](https://github.com/user-attachments/assets/5a368817-fbf4-4e78-a066-0fb4f1344cea)
+![image](https://github.com/user-attachments/assets/d080fe03-1c95-46db-a3d8-6bdbdbbeed86)
 
 So basically, call me whatever you want (literally any name works, I had someone call me Joe Biden for a while). But if you really want a name, call me Ross or whatever character I'm dressed as! Again, I think names are dumb and annoying, so it's really up to you if you want to address me by anything specific.
 
 I also don't have a DNI since I think they're silly and inneffective! But I guess if you're someone who's rude and harrasses others over disagreements and what not, don't talk to me. I don't like arguing and drama, so if you're the kind of person who gets involved in that stuff a lot, then I don't think I want to be friends with you. I like to believe that everyone has the potential to be a good person and when we choose to fight, then it'll only make things worse. I think everyone should be treated with respect and basic kindness, no matter what.
 
-![image](https://github.com/user-attachments/assets/64135aa5-c907-436d-81ad-a4afcf74382e)
+![image](https://github.com/user-attachments/assets/52bc8cbe-9cc0-480d-97e6-7cfabd2d272d)
 
 I don't really have many hobbies, but I want to create my own comic one day, so theres that. I also want to make a musical, but I also *really hate watching musicals* so... yeah! That'll... totally go well!
 
@@ -18,7 +17,7 @@ People say that I'm funny, but I don't really think I am? I don't know? What els
 
 Oh right, interests! I know how much pony town users love to assume how morally intact you are by judging your interests!! ^_^
 
-![image](https://github.com/user-attachments/assets/56ad3490-9527-46db-9a2d-a2e5c66d6d05)
+![image](https://github.com/user-attachments/assets/287b511c-0069-4e07-9709-d5bc46b4b95f)
 
 Anyway! Some interests I kinda have are FAITH: The Unholy Trinity, 9/11, Oceangate, Postal 1997 (plus all the other postal games), FNAF, Flipline/The Papa's Restaurant games, Dragon Ball, Sonic (trying to get back into it), and many more I'm too lazy to name!!
 
