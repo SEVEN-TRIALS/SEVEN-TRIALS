@@ -21,7 +21,7 @@ Oh right, interests! I know how much pony town users love to assume how morally 
 
 Anyway! Some interests I kinda have are FAITH: The Unholy Trinity, 9/11, Oceangate, Postal 1997 (plus all the other postal games), FNAF, Flipline/The Papa's Restaurant games, Dragon Ball, Sonic (trying to get back into it), and many more I'm too lazy to name!!
 
-I'm running out of things to say about me, but i also have [this strawpage](https://nostalgiahog.straw.page) that does a better job at showifn who I am! hopefully you'll send me a little gift!
+I'm running out of things to say about me, but i also have [this strawpage](https://seven-trials.straw.page) that does a better job at showifn who I am! hopefully you'll send me a little gift!
 
 ![image](https://github.com/user-attachments/assets/427fd934-16f5-4c2e-91c6-b146bb0a0c98)![image](https://github.com/user-attachments/assets/f2794642-be41-4cd6-9582-9615fa1e8911)![image](https://github.com/user-attachments/assets/8af31c63-20ec-4a77-b530-4d2cca84230c)
 
